@@ -1,2 +1,0 @@
-# Trabalho
-matemática 2
